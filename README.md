@@ -1,0 +1,2 @@
+# Iska112
+coinhive
